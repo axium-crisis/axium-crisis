@@ -1,5 +1,6 @@
-![tenor](https://c.tenor.com/ipZQYAKpLyUAAAAd/tenor.gif)
-![tenor](https://github.com/user-attachments/assets/b5582fe8-0318-4f6f-8ff4-313d79641a77)
+
+<img src="https://c.tenor.com/YtZTN4rTeaIAAAAd/tenor.gif)" width="200" height="200" /> <img src="https://c.tenor.com/jkeb9ihwxMEAAAAd/tenor.gif)" width="400" height="200" />
+
 > [!IMPORTANT]
 > check out my strawpage for more info! ^_^
 > (https://ivuria.straw.page)
